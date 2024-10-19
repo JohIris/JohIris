@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JohIris
-- 👀 I’m interested in Manchester City - Pets - Kpop.
+- 👀 I’m interested in Manchester City - Pets - Libros.
 - I'm form Argentina, Buenos Aires.
 - I mainly speak Spanish... 
 
